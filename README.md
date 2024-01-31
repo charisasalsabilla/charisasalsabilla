@@ -1,7 +1,7 @@
 ### Hi there 👋# Biodata
 
 ## Nama
-[Your Name]
+Charisa salsabilla iskandar
 
 ## Tentang Saya
 Tuliskan deskripsi singkat tentang diri Anda di sini.
